@@ -1,1 +1,3 @@
-**Created by Robskan#5300 and Tomato#6966**
+## **Created by Robskan#5300**
+
+[Need support?](https://dsc.gg/dynamico)
